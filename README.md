@@ -1,0 +1,2 @@
+# myLove
+my faverate
